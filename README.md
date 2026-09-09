@@ -1,1 +1,1 @@
-# Politicans-Versus-WallstreetBets
+# Politicians-Versus-WallstreetBets
